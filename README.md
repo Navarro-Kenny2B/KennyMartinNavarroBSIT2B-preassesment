@@ -1,1 +1,0 @@
-# KennyMartinNavarroBSIT2B-preassesment
